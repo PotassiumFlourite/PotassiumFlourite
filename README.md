@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @PotassiumFlourite
-- 👀 I’m interested in your Mother 
-- 🌱 I’m currently learning how to get your mother on the bed
-- 💞️ I’m looking to collaborate on your mother on a project
-- 📫 How to reach me with your mother on my bed
+- 👀 I’m interested in your furrys
+- 🌱 I’m currently learning how to be a furry
+- 💞️ I’m looking to collaborate on a furry suit
+- 📫 How to reach me with a furry
 - 😄 Pronouns: Him and Her
   Potassium
 
