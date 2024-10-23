@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to get your mother
 - 💞️ I’m looking to collaborate on your mother
 - 📫 How to reach me with your mother
-- 😄 Pronouns: :)
+- 😄 Pronouns: Him and Her
   Potassium
 
 <!---
